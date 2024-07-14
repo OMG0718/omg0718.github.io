@@ -1,5 +1,5 @@
 # omg0718.github.io
-testing...
+localhost web for learning?
 
 ::: 
 https://omg0718.github.io/
