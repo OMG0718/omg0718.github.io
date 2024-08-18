@@ -6,5 +6,6 @@ https://omg0718.github.io/
 
 # localhost
 still learning...
+dont see my diary... bitchhhhh
 
 
